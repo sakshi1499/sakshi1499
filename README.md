@@ -19,5 +19,7 @@ Here are some ideas to get you started:
 
 - :office: Portfolio: [Portfolio](https://sakshi1499.github.io/myPortfolio/)
 
+- Email: sakshi1499@gmail.com
+
 - Want to know about Tech Opportunities? [Join](https://chat.whatsapp.com/BbbdmbizIRaDQpH6eXXqvU) my group!
  
