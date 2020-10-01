@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 
 - 👯 I’m looking to collaborate on exciting new projects!
 
-- 💬 Ask me about: Open Source, IEEE, GirlScript, Research Papers
+- 💬 Ask me about: Open Source, IEEE, GirlScript, Research Papers, Grace Hopper Celebration!
 
 - 📫 Reach me at: [LinkedIn](https://www.linkedin.com/in/sakshi-munjal-266633187/)
 
