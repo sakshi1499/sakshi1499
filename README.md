@@ -22,4 +22,6 @@ Here are some ideas to get you started:
 - Email: sakshi1499@gmail.com
 
 - Want to know about Tech Opportunities? [Join](https://chat.whatsapp.com/BbbdmbizIRaDQpH6eXXqvU) my group!
+
+- Read my blog at [Blog](http://smmyblog.surge.sh/blog)
  
